@@ -1,1 +1,1 @@
-This is just some explorations of the use of psychometrics in golf. Specifically, as it relates to golf course rating and hole handicaps. I'm in the exploratory phase right now, but will be uploading more soon. Chhers!
+This is just some explorations of the use of psychometrics in golf. Specifically, as it relates to golf course rating and hole handicaps. I'm in the exploratory phase right now, but will be uploading more soon. Cheers!
